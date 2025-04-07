@@ -1,1 +1,1 @@
-iykyk ;3
+deprecated shitty unblocker use dariusday.github.io
